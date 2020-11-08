@@ -1,1 +1,1 @@
-# smin.io
+# Welcome Smin
